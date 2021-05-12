@@ -7,6 +7,56 @@ I wanted to find out what were the most recommended books for young lawyers who 
 
 # The most recommended books of all-time.
 
+### [Letters to a Young Lawyer (Letters to a Young...)](https://www.amazon.com/Letters-Young-Lawyer-ebook/dp/B06XC5BC4D/ref=sr_1_1?dchild=1&keywords=Letters+to+a+Young+Lawyer&qid=1620857075&sr=8-1) by Alan M. Dershowitz
+    
+![](https://m.media-amazon.com/images/I/41GurRdzGIL.jpg#center)
+
+"As defender of both the righteous and the questionable, Alan Dershowitz has become perhaps the most famous and outspoken attorney in the land. Whether or not they agree with his legal tactics, most people would agree that he possesses a powerful and profound sense of justice. In this meditation on his profession, Dershowitz writes about life, law, and the opportunities that young lawyers have to do good and do well at the same time. We live in an age of growing dissatisfaction with law as a career, which ironically comes at a time of unprecedented wealth for many lawyers. Dershowitz addresses this paradox, as well as the uncomfortable reality of working hard for clients who are often without many redeeming qualities. He writes about the lure of money, fame, and power, as well as about the seduction of success. In the process, he conveys some of the "tricks of the trade" that have helped him win cases and become successful at the art and practice of "lawyering." [Amazon.com](https://www.amazon.com/Letters-Young-Lawyer-ebook/dp/B06XC5BC4D/ref=sr_1_1?dchild=1&keywords=Letters+to+a+Young+Lawyer&qid=1620857075&sr=8-1)
+
+### [Guerrilla Tactics for Getting the Legal Job of Your Dreams](https://www.amazon.com/Guerrilla-Tactics-Getting-Legal-Dreams/dp/0314176772/ref=sr_1_1?dchild=1&keywords=Guerrilla+Tactics+for+Getting+the+Legal+Job&qid=1620856912&sr=8-1)
+    
+![](https://images-na.ssl-images-amazon.com/images/I/511X2nxjpHL._SX359_BO1,204,203,200_.jpg#center)
+
+"This work is the key to getting the legal job of your dreams. It leads you step-by-step through everything you need to do to nail down that perfect job. You'll learn hundreds of simple-to-use strategies that will get you exactly where you want to go." [Amazon.com](https://www.amazon.com/Guerrilla-Tactics-Getting-Legal-Dreams/dp/0314176772/ref=sr_1_1?dchild=1&keywords=Guerrilla+Tactics+for+Getting+the+Legal+Job&qid=1620856912&sr=8-1)
+
+### [Essential Lawyering Skills (Aspen Coursebook): Interviewing, Counseling, Negotiation, and Persuasive Fact Analysis](https://www.amazon.com/Stefan-Krieger/dp/1454830980/ref=sr_1_2?dchild=1&ie=UTF8&keywords=Essential%20lawyering%20skills%20interviewing&language=en_US&qid=1620856760&sr=8-2) by Stefan Krieger
+    
+![](https://images-na.ssl-images-amazon.com/images/I/51zYQcxCgGL._SX348_BO1,204,203,200_.jpg#center)
+
+"Essential Lawyering Skills, Fifth Edition, provides concise, straightforward explanations of problem solving, interviewing, counseling, negotiation and fact analysis. Highly regarded in the field of lawyering skills, authors Stefan H. Krieger and Richard K. Neumann use numerous examples to illustrate new concepts, place topics in context, and engage student interest. The topic of professional responsibility is integrated throughout. Key Features:
+Improved coverage of problem-solving skills Film-making techniques in legal storytelling Professional e-communications with clients and in negotiations Ethical issues in plea bargaining" [Amazon.com](https://www.amazon.com/Stefan-Krieger/dp/1454830980/ref=sr_1_2?dchild=1&ie=UTF8&keywords=Essential%20lawyering%20skills%20interviewing&language=en_US&qid=1620856760&sr=8-2)
+
+### [Never Split the Difference: Negotiating As If Your Life Depended On It](https://www.amazon.com/-/es/Chris-Voss-ebook/dp/B014DUR7L2/ref=sr_1_1?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=criss+voss&qid=1620856325&sr=8-1) by Chris Voss
+    
+![](https://m.media-amazon.com/images/I/51yKczFDuQL.jpg#center)
+
+"A field-tested, game-changing approach to high-stakes negotiations—whether in the boardroom or at home.
+
+Never Split the Difference is a riveting, indispensable handbook of negotiation principles culled and perfected from Chris Voss’s remarkable career as a hostage negotiator and later as an award-winning teacher in the world’s most prestigious business schools. From policing the rough streets of Kansas City, Missouri, to becoming the FBI’s lead international kidnapping negotiator to teaching negotiation at leading universities, Voss has tested these techniques across the full spectrum of human endeavor and proved their effectiveness. Those who have benefited from these techniques include business clients generating millions in additional profits, MBA students getting better jobs, and even parents dealing with their kids.
+
+Never Split the Difference provides a gripping, behind-the-scenes recounting of dramatic scenarios from the gang-infested streets of Haiti to a Brooklyn bank robbery gone horribly wrong, revealing the negotiation strategies that helped Voss and his colleagues succeed where it mattered most: saving lives. As a world-class negotiator, Voss shows you how to use these skills in the workplace and in every other realm of your life.
+
+Life is a series of negotiations: whether buying a car, getting a better raise, buying a home, renegotiating rent, or deliberating with your partner, Never Split the Difference gives you the competitive edge in any discussion.
+
+Advance praise for Never Split The Difference" [Amazon.com](https://www.amazon.com/-/es/Chris-Voss-ebook/dp/B014DUR7L2/ref=sr_1_1?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=criss+voss&qid=1620856325&sr=8-1)
+
+### [Venture Deals: Be Smarter Than Your Lawyer and Venture Capitalist](https://www.amazon.com/Venture-Deals-Smarter-Lawyer-Capitalist-ebook/dp/B07WSYKG7N/ref=sr_1_1?dchild=1&keywords=Venture+Deals&qid=1620857209&sr=8-1) by Jason Mendelson
+    
+![](https://m.media-amazon.com/images/I/41efEuWfUuL.jpg)
+
+"Help take your startup to the next step with the new and revised edition of the popular book on the VC deal process—from the co-founders of the Foundry Group
+
+How do venture capital deals come together? This is one of the most frequent questions asked by each generation of new entrepreneurs. Surprisingly, there is little reliable information on the subject. No one understands this better than Brad Feld and Jason Mendelson. The founders and driving force behind the Foundry Group—a venture capital firm focused on investing in early-stage information technology companies—Brad and Jason have been involved in hundreds of venture capital financings. Their investments range from small startups to large Series A venture financing rounds. The new edition of Venture Deals continues to show fledgling entrepreneurs the inner-workings of the VC process, from the venture capital term sheet and effective negotiating strategies to the initial seed and the later stages of development.
+
+Fully updated to reflect the intricacies of startups and entrepreneurship in today's dynamic economic environment, this new edition includes revisions and updates to coverage on negotiating, gender issues, ICO’s, and economic terms. New chapters examine legal and procedural considerations relevant to fundraising, bank debt, equity and convertible debt, how to hire an investment banker to sell a company, and more.
+
+Provides valuable, real-world insights into venture capital structure and strategy
+Explains and clarifies the VC term sheet and other misunderstood aspects of capital funding
+Helps to build collaborative and supportive relationships between entrepreneurs and investors
+Draws from the author’s years of practical experience in the VC arena
+Includes extensively revised and updated content throughout to increase readability and currency
+Venture Deals: Be Smarter Than Your Lawyer and Venture Capitalist is a must-have resource for Any aspiring entrepreneur, venture capitalist, or lawyer involved in VC deals as well as students and instructors in related areas of study." [Amazon.com](https://www.amazon.com/Venture-Deals-Smarter-Lawyer-Capitalist-ebook/dp/B07WSYKG7N/ref=sr_1_1?dchild=1&keywords=Venture+Deals&qid=1620857209&sr=8-1)
+
 ### [Zero to One](https://www.amazon.com/-/es/dp/B00M284NY2/ref=sr_1_1?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=Zero+to+One&qid=1620820777&s=audible&sr=1-1) by Peter Thiel 
     
 ![](https://www.daolf.com/images/book_list/2.jpg#center)
