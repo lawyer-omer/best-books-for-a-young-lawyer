@@ -4,6 +4,8 @@ There are countless lists on the internet claiming to be **the** list of must-re
 
 I wanted to find out what were the most recommended books for young lawyers who want to work for a startup, and so I've made this. I've compiled **a lot of lists** found on the internet. To my knowledge, this is the most complete list of its kind on the subject.
 
+PLEASE DON'T HESITATE TO CONTRIBUTE THIS LIST ANYTIME. THIS IS WHY I PUT THIS LIST HERE!
+
 
 # The most recommended books of all-time.
 
