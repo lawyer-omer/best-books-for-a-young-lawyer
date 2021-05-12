@@ -276,4 +276,4 @@ Although the order might suprise some, by definition, most of you must have hear
 
 A few additional things I learned making this list: 
 - Tim Ferriss is the only author with several books in the list.
-- The [Steve Jobs biography](https://www.amazon.com/-/es/dp/B005YUDQ4S/ref=sr_1_1?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=Steve+Jobs+biography&qid=1620821086&s=audible&sr=1-1) by Walter Isaacson is the most quoted biography, being recommended by 6% of the article.
+- The [Steve Jobs biography](https://www.amazon.com/-/es/dp/B005YUDQ4S/ref=sr_1_1__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=Steve+Jobs+biography&qid=1620821086&s=audible&sr=1-1) by Walter Isaacson is the most quoted biography, being recommended by 6% of the article.
