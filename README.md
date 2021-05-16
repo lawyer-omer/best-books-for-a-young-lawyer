@@ -28,6 +28,12 @@ PLEASE DON'T HESITATE TO CONTRIBUTE THIS LIST ANYTIME. THIS IS WHY I PUT THIS LI
 "Essential Lawyering Skills, Fifth Edition, provides concise, straightforward explanations of problem solving, interviewing, counseling, negotiation and fact analysis. Highly regarded in the field of lawyering skills, authors Stefan H. Krieger and Richard K. Neumann use numerous examples to illustrate new concepts, place topics in context, and engage student interest. The topic of professional responsibility is integrated throughout. Key Features:
 Improved coverage of problem-solving skills Film-making techniques in legal storytelling Professional e-communications with clients and in negotiations Ethical issues in plea bargaining" [Amazon.com](https://www.amazon.com/Stefan-Krieger/dp/1454830980/ref=sr_1_2?dchild=1&ie=UTF8&keywords=Essential%20lawyering%20skills%20interviewing&language=en_US&qid=1620856760&sr=8-2)
 
+### [Limitless: Upgrade Your Brain, Learn Anything Faster, and Unlock Your Exceptional Life](https://www.amazon.com/-/es/Jim-Kwik-ebook/dp/B082ZQDH63/ref=sr_1_3?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=limitless&qid=1621152273&sr=8-3) by Jim Kwik
+    
+![](https://m.media-amazon.com/images/I/41U3sg4aP-L.jpg#center)
+
+"JIM KWIK, the world's #1 brain coach, has written the owner's manual for mental expansion and brain fitness. Limitless gives people the ability to accomplish more--more productivity, more transformation, more personal success, and business achievement, by changing their Mindset, Motivation, and Methods." [Amazon.com](https://www.amazon.com/-/es/Jim-Kwik-ebook/dp/B082ZQDH63/ref=sr_1_3?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=limitless&qid=1621152273&sr=8-3)
+
 ### [Never Split the Difference: Negotiating As If Your Life Depended On It](https://www.amazon.com/-/es/Chris-Voss-ebook/dp/B014DUR7L2/ref=sr_1_1?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=criss+voss&qid=1620856325&sr=8-1) by Chris Voss
     
 ![](https://m.media-amazon.com/images/I/51yKczFDuQL.jpg#center)
